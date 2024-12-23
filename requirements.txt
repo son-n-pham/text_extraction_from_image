@@ -1,0 +1,7 @@
+python-dotenv
+google-generativeai
+Pillow
+ollama
+pytesseract
+easyocr
+python-doctr[torch]

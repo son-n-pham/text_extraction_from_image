@@ -1,0 +1,7 @@
+## Gemini Vision Results
+
+Twilight filled the grief consumed corridor, cleared of ang sign indicating colour, light or life. The wind whistled through the towering pillars creating the only train of sound, able to be heard. A man stood in the colourless plane, unable to move or think. Attempting to imagine a world of life and luxury was eternally out of reach, like a goal with no prize. The mind was a fascinating entity it's capabilities endless, yet also enhanced with a limit. like a long string tied to a burning match, the power of imagination just needed to be cut loose.
+
+The man who stood in the corridor seemed to be a representation of thought, yet unable to be cut free, with unrippable rope. like a candle in a head, the corridor could be brought back to a flourishing future, sunshine a golden treasure, all returned with just a flicker of fire. Yet it could be blown out with a single dull thought of mind. Doubt and demons could chase the man out, but only if you don't believe in yourself. The man could cry, drowned in tears or have some fun with the chase, overflowing with cheer. Yet fear, fright and disencouragement could overcome both fates, underestimating the power of oversight. You could think something easy, but turns out to be hard. like smoke in the corider it slowly overcomes all.
+
+Though each little representation of the mind is different in each way. Remember a string, candle or smoke could help unlock your minds true potential. You could write a fable, Imagine an epic fight. For imagination is endless and it's power is true.
